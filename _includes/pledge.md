@@ -1,3 +1,2 @@
-We who belong to the Open Company Initiative pledge to proactively maximize
-trust through genuine corporate transparency and openness, not as an
-afterthought, but as a defining element in how we create value.
+We who belong to the Open Company Initiative pledge to maximize
+trust through proactive openness as a defining value in our work and ask our customers to hold us accountable to consistent, creative transparency.
